@@ -8,5 +8,5 @@ For design and artistic creations see Art folder.
 
 
 All rights are reserved. 2025 @ KorWolf.
-Do not use my art of voice for AI in any way. 
+Do not use my art or voice for AI in any way. 
 All of my work is AI free.
